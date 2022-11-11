@@ -1,0 +1,72 @@
+---
+title: New York's Gambling Scene Heats Up as Online Gaming Comes to the State
+date: 2022-11-11 10:56:06
+categories:
+- Slot Games
+tags:
+---
+
+
+#  New York's Gambling Scene Heats Up as Online Gaming Comes to the State
+
+Theregulated online gaming market in New York is growing rapidly as more and more residents gain access to quality offerings through their personal devices or computers. Operators in the state are seeing significant increases in customers and profits, with industry experts expecting the trend to continue.
+
+Much of the growth can be attributed to the recent legalization of sports betting in New York, which has given the industry a much-needed boost. Since the ban was lifted several months ago, New York's regulated online gambling market has grown by nearly 50%. In addition, nearly $1 billion has been wagered on sports so far in 2019, with that number expected to continue rising.
+
+The increase in gambling activity is good news for operators in the state, who have seen their profits surge over the past year. Gross gaming revenue for regulated online casinos totaled more than $265 million in 2018, up from just $174 million in 2017. The trend is expected to continue this year, with analysts predicting that gross gaming revenue will exceed $350 million.
+
+Much of that growth can be attributed to the increasing popularity of online casino games such as blackjack, slots, and poker. In fact, online poker is now among the most popular genres in the state, with players wagering nearly $100 million on the game last year. That number is expected to grow significantly in 2019 as more residents gain access to legal online poker rooms.
+
+The rise of online gambling in New York has also led to an increase in employment opportunities within the industry. Nearly 4,000 people are now employed by licensed operators in New York, up from just 2,500 a year ago. And with new licenses being granted every month, that number is expected to continue rising in the coming years.
+
+Overall, New York's regulated online gambling industry is thriving thanks to increased interest from players and operators alike. With sports betting now legal and new licenses being granted every month, there's plenty of room for further growth in the years ahead.
+
+#  New York On The Cusp Of Legalizing Online Gambling
+
+With the potential passage of the New York Online Poker Act, the Empire State is on the cusp of becoming the fourth US state to legalize and regulate online poker.
+
+The NYOPA would create a new online poker regulatory body, the New York Gaming Commission (NYGC), which would be responsible for licensing and regulating both online poker operators and players. The NYGC would also have oversight over bricks-and-mortar casinos in New York, who would be authorized to offer online poker.
+
+The bill has been introduced in the state Assembly multiple times over the past few years, but has failed to gain traction. However, with a new governor in place and a more supportive legislature, there’s a good chance that the NYOPA could finally pass this year.
+
+One of the main opponents of legalizing online poker in New York is casino mogul Sheldon Adelson. Adelson has poured millions of dollars into lobbying efforts against online gambling, and he is likely to continue to do so in New York. However, he is up against a growing coalition of support for online gambling, including labor unions, horse racing interests, and casino operators.
+
+If passed, the NYOPA would bring in an estimated $100 million in annual tax revenue for New York state government. This would help offset some of the $4 billion budget deficit projected for 2019-2020.
+
+#  New York Poised To Become A Major Player In The Online Gambling World
+
+The New York state legislature is primed to pass a bill that would allow for online gambling within the state’s borders. The move would make New York the fourth US state to legalize some form of internet gambling, after Nevada, Delaware and New Jersey.
+
+Governor Andrew Cuomo is behind the measure, which would allow up to 10 commercial casinos in the state to offer online poker, blackjack and other casino games to residents. The casinos would be required to partner with one or more of the existing land-based casino operators in the state in order to offer the online games.
+
+The passage of this bill would be a major victory for Governor Cuomo, who has been a vocal advocate for online gambling in New York. He has said that the move would help to generate much-needed revenue for the cash-strapped state government.
+
+Online gambling is a rapidly growing industry, with worldwide revenues expected to exceed $60 billion by 2020. The US market accounts for the majority of that total, and is estimated to be worth more than $25 billion. With legalization spreading across the country, it is likely that New York will soon become a major player in this booming market.
+
+#  New York Moves Closer To Allowing Online Gambling
+
+In a vote on Wednesday, the New York state assembly passed a bill that would legalize online gambling within the state. If the bill is also approved by the state senate and signed into law by Governor Andrew Cuomo, it will make New York the fourth state in the US to allow online gambling, joining Nevada, New Jersey, and Delaware.
+
+Supporters of the bill argue that it will help generate much-needed revenue for the state government. Opponents contend that it could lead to increased problem gambling.
+
+The vote was largely along party lines, with only six Republicans voting in favor of the bill and 21 Democrats opposed. The measure now goes to the senate, where its fate is uncertain. A spokesman for Senate Majority Leader John Flanagan said that he has not yet taken a position on the bill.
+
+If it is approved by the senate and signed into law, New York’s online gambling industry could be up and running as early as next year. Gamblers would be able to place bets on casino games, horse races, and other sporting events over the internet. The legislation would also allow racetracks and casinos in Albany, Catskills, Suffolk County, and Tioga Downs to offer online poker tournaments and other types of gambling.
+
+The exact details of how the industry would be regulated have not yet been worked out. But under the proposed bill, a nine-member board appointed by Cuomo would be responsible for overseeing all aspects of online gaming in New York. The board would have broad authority to issue licenses, set tax rates, and enforce regulations.
+
+Cuomo has said that he supports legalizing online gambling but wants to make sure that adequate protections are in place to guard against problem gambling. “I support (legalized) Internet gaming but we want to do it right with appropriate regulatory controls in place so we can protect consumers – especially young people – and reap some economic benefits for our state without promoting addiction”, he said in a statement last month.
+
+#  Finally! New York Officially Begins Process Of Legalizing Online Gambling
+
+New York is one of the last states in the country to legalize some form of online gambling, but that process began earlier this week.
+
+The New York State Gaming Commission voted unanimously on Monday to authorize a new gaming category that will include online poker, casino games and fantasy sports.
+
+This is a major development for New Yorkers, as it paves the way for them to legally enjoy poker and other casino games from the comfort of their own homes.
+
+At the moment, there isn't much information available about how exactly the online gambling market will work in New York. We do know that the NYSGC plans to issue licenses for both commercial and tribal casinos, so it's likely that we'll see a mix of both types of operators in the state.
+
+It's also unclear when exactly New Yorkers will be able to start gambling online. The NYSGC has said that it will issue regulations later this year, and that those regulations will include "the initiation of internet gaming". So we can expect things to get started in 2019 at the earliest.
+
+Still, this is an exciting development, and it's great to see New York finally moving forward with legalizing online gambling. There are already plenty of states where you can gamble online, so it's nice to see New York joining the club.
